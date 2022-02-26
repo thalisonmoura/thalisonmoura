@@ -1,0 +1,3 @@
+- 👋 Oi, eu sou o @thalisonmoura
+- 🌱 Estou aprendendo e aprimorando minhas habilidades.
+- 📫 Pode me contar via e-mail: thalisonsilvamoura@gmail.com
